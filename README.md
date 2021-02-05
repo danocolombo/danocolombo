@@ -4,9 +4,9 @@
 
 Full-stack Software Engineer. 
 
-Just wondering how much on particular career can continue to be so evolutionary and time consuming...
+Just wondering how much a particular career can continue to be so evolutionary and time consuming...
 
-Be well.
+It is well...
 
 Grace and peace
 
